@@ -1,1 +1,0 @@
-Data and details are hidden to avoid any confidentiality problems. For any request or question, you can contact me.
